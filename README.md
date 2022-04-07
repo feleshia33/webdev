@@ -1,2 +1,1 @@
-check it out at,
-wwww.byfeleshia.com
+check it out at wwww.byfeleshia.com
